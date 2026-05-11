@@ -1,4 +1,4 @@
-# 
+# vip Template for Sketch for macOS - AI-assisted design and content-aware fill offers the most advanced Sketch for macOS template, with AI-assisted design and content-aware fill.
 
 
 
